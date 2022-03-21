@@ -1,0 +1,2 @@
+# SaktDarbu
+Ievadnodarbiba
